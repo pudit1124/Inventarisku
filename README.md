@@ -1,0 +1,2 @@
+# inventarisku
+INVENTARIS DARI AWAL SAMPAI AKHIR
